@@ -16,6 +16,9 @@
 Show me hate show me love, make me bulletproof
 ```
 
+> Marie Curie
+>> **"Nothing in life is to be feared; it is only to be understood. "**
+
 | 背景 | 內容 |
 | :---: | :---: |
 | 學歷 | 國立高雄科技大學資訊管理系在職學生 |
